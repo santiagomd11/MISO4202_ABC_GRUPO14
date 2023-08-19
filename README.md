@@ -4,9 +4,13 @@
 ## Integrantes
 
 Tomás Octavio Rodríguez Herrera​
+
 Inés Adela Rojas León​
+
 Jesús Darío Ríos Rosas​
+
 Víctor Santiago Montaño Diaz
+
 
 
 ## Wiki
